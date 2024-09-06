@@ -1,5 +1,7 @@
-_Vos convido para meu cantinho no universo digital. Espaço que usarei para organização e compartilhamento de meus projetos._
+Meu cantinho no universo digital. Usado para organização e compartilhamento de meus projetos.
 
-_Eu me chamo Matheus e estou iniciando nesse universo da programação, tenho 16 anos, atualmente cursando 1°ano do ensino médio, participo também de um projeto do alura e de inglês proporcionados pela escola. Eu desprezei muito a escola durante um tempo, o que acarretou na perca de um ano na escola, mas eu voltei. O ego havia crescido, eu o alimentei, ele dominou, mas eu voltei, descobri algo maior dentro de mim e agora volto ao meu domínio. A Fé é graça de Deus e não a nada maior que isso._
+_Eu me chamo Matheus e estou iniciando nesse universo da computação, tenho 16 anos, atualmente cursando 1°ano do ensino médio, participo também de um projeto da alura start e de inglês proporcionados pela escola. Eu desprezei por muito tempo a escola, o que acarretou na perca de um ano escolar, mas agora me encontro mais determinado que nunca para "correr atrás"._
 
-Objetivos (veja meu futuro): Eu sou um profissional em produtividade, otimizo ambientes de trabalho "desde o software até o hardware" permitindo, através de hábitos, um melhor desempenho dos membros, tanto como unidade quanto em conjunto. Não sou um especialista em nada, mas tenho ótimas habiliddes de coaching e tecnologia, de forma a poder ajudar no que for preciso.
+_"A Fé é graça de Deus e não a nada maior que isso. Graças a Deus eu abandonei meu ego!"_
+
+_Objetivos: entender e fugir da matrix... kkkk brincadeira. Eu me vejo no futuro como um líder guiado por Deus em cada passo, um exemplo, referência; ótimas habilidades "técnicomputacionais", de organização e otimização do ambiente de trabalho, negociação, gestão, um líder carismático e articulado. Criatividade é meu sobrenome._
